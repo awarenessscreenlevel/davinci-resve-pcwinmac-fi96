@@ -1,4 +1,4 @@
-# 
+# Professionnel DaVinci Resolve outils pour Mac OS | Top DaVinci Resolve outils pour PC Windows. Avec changement de tonalité et montage de timeline — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
